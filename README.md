@@ -1,2 +1,0 @@
-# Ajaymengal-
-Bgmi free event 
